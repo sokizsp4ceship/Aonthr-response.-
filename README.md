@@ -17,6 +17,6 @@ stop telling me WHAT he was doing or when he was on. gen jst hide him. not tht h
 i dont wnna sound rude in ths but it gets to a point wher im super annoyed. 
 
 
-no. ths is nit defending any of his actions but ths ISSS me saying some of u ar doing a little to much. 
+no. ths is not defending any of his actions but ths ISSS me saying some of u ar doing a little to much. 
 ty for reading n i hope yall understand wher im coming from w ths. 
 
