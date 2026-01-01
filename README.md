@@ -1,5 +1,5 @@
 # Aonthr-response.-
-The fang situation. ( note: pleas stry for typos ) 
+The fang situation. ( note: pleas srry for typos ) 
 
 
 heya soki again from ponytown!! i have a few more thngs to say abt ths whole fang situation. 
